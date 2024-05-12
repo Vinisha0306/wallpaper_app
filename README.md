@@ -33,3 +33,11 @@
 ### Enjoy:
 
 - Enjoy your customized device with the new wallpaper set according to your preferences.
+
+### Video
+
+https://github.com/Vinisha0306/wallpaper_app/assets/143987696/bdb70967-4b2e-472d-adf7-93c223d76071
+
+
+
+
